@@ -1,2 +1,2 @@
-# batch92
+# Torry Harris Business Solutions -- batch92
 Training 
